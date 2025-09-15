@@ -23,6 +23,4 @@ We are proud to be recognized as a **top rated electronic parts distributor onli
 
 Masline is your go-to **trusted electronic parts distributor online** and **trusted electronic components supplier online**, ensuring that you get the right parts, at the right price, with the service you deserve.
 
-Visit us: [Masline](https://www.masline.com/)
-
 ---
